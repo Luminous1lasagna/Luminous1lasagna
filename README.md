@@ -16,7 +16,7 @@ i like tomatos and strawberries at an obsessive level![Image](https://github.com
 
 not so fun funfact i have brain damage🗣️🔨 
 
-# ronaldo will be my husband one day./j
+# Christiano Ronaldo will be my husband one day./j
 
 <img width="1108" height="2110" alt="Image" src="https://github.com/user-attachments/assets/af67535d-a6de-47e2-bfca-d9456029ea83" /> 
 yes i drew that
