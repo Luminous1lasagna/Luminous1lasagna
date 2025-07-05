@@ -2,7 +2,8 @@
 
 (my friend auggie taught me how 2 use this)
 
-![Image](https://github.com/user-attachments/assets/bab654fb-f5ae-4039-b270-e2b4e264559a)
+![Image](https://github.com/user-attachments/assets/bab654fb-f5ae-4039-b270-e2b4e264559a) ![Image](https://github.com/user-attachments/assets/3bbfd820-b7c9-469e-b05a-dce16bacc432) <img width="300" height="300" alt="Image" src="https://github.com/user-attachments/assets/0f78bca5-1385-40ee-9447-387a5993ea37" /> (genogypt is 100% canon guys)
+
 
 hai look at my links i like making friends![Image](https://github.com/user-attachments/assets/693ee5a1-6a0f-42b5-a3cf-eaa75dedb988)![Image](https://github.com/user-attachments/assets/af709a1b-69c1-4e53-8f06-32e3e077fe2f)
 ![Image](https://github.com/user-attachments/assets/1311500f-0387-45c3-a5d8-c9e14a536612)
