@@ -16,9 +16,10 @@ hai look at my links i like making friends![Image](https://github.com/user-attac
 
 i like tomatos and strawberries at an obsessive level![Image](https://github.com/user-attachments/assets/79b020c0-90ee-4457-b326-e4d5d41d22f2)
 
-not so fun funfact i have brain damage🗣️🔨 
+i have a pineapple juice addiction 
 
 # Christiano Ronaldo will be my husband one day./j
 
-<img width="1108" height="2110" alt="Image" src="https://github.com/user-attachments/assets/af67535d-a6de-47e2-bfca-d9456029ea83" /> 
-yes i drew that
+<img width="1752" height="1450" alt="image" src="https://github.com/user-attachments/assets/0f53c6b9-4503-4a1e-9cb2-6747741728f1" />
+
+my ocs that are gay for each other i dunno
