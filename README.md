@@ -1,7 +1,7 @@
 <img width="396" height="101" alt="image" src="https://github.com/user-attachments/assets/c8770025-51a0-4d63-85b7-ee2f94739ae8" />
 
 
-# 🍻 hello gangsta🔥🔥👅 this is for ponytown and ponytown only 
+# 🍻 hii hii🍀 this is for ponytown and ponytown only 
 
 (my friend auggie taught me how 2 use this) <code style="color : (my friend auggie taught me how 2 use this)">my gangstalious GOAT</code>
 
