@@ -14,11 +14,11 @@ hai look at my links i like making friends![Image](https://github.com/user-attac
 
 · · ─ ·✶· ─ · ·
 
-i like tomatos and strawberries at an obsessive level![Image](https://github.com/user-attachments/assets/79b020c0-90ee-4457-b326-e4d5d41d22f2)
+i really like tomatoes and strawberries![Image](https://github.com/user-attachments/assets/79b020c0-90ee-4457-b326-e4d5d41d22f2)
 
 i have a pineapple juice addiction <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/356b68d9-0052-403c-9c04-d2c223d9ae4f" />
 
-# Christiano Ronaldo will be my husband one day./j
+# Christiano Ronaldo will be my husband one day.
 
 <img width="1752" height="1450" alt="image" src="https://github.com/user-attachments/assets/0f53c6b9-4503-4a1e-9cb2-6747741728f1" />
 
