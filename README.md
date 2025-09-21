@@ -1,4 +1,5 @@
-<img width="396" height="101" alt="Image" src="https://github.com/user-attachments/assets/e9e15883-8cf1-4695-8e8a-2faa944c6afb" />
+<img width="391" height="391" alt="image" src="https://github.com/user-attachments/assets/3bc2ac14-1f90-457d-b2bd-b3ff28bb286c" />
+ />
 
 # 🍻 hello gangsta🔥🔥👅 this is for ponytown and ponytown only 
 
