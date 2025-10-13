@@ -20,6 +20,6 @@ i have a pineapple juice addiction <img width="50" height="50" alt="image" src="
 
 # All hail The Republic of Georgia🇬🇪🇬🇪🇬🇪
 
-<img width="1752" height="1450" alt="image" src="https://github.com/user-attachments/assets/0f53c6b9-4503-4a1e-9cb2-6747741728f1" />
+<img width="1752" height="1450" alt="image" src="5d752aae486f900c65ec71a7ce75898e.jpg" />
 
 my ocs that are gay for each other i dunno
