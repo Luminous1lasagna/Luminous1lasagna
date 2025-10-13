@@ -2,7 +2,7 @@
 
 
 # 🍻 hii hii🍀 this is for ponytown and ponytown only 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img alt="image" src="Screenshot_2025-10-12_at_9.34.48_PM-removebg-preview.png" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img alt="image" src="Screenshot_2025-10-12_at_9.34.48_PM-removebg-preview.png" /> made by @clownboxes on twitter
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img alt= "gif" src="1a21cdac-b386-44fc-b065-9c85e88ed10c.gif" />
 
