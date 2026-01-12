@@ -10,5 +10,5 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img alt="gif" src="ezgif-5c4ef46c6397a1.webp" /> <img alt="gif" src="tumblr_7b41e807e0f80274af711790078dc44b_0c720cc9_250.webp" /> <img alt="gif" src="tumblr_aaeb06c886fd463ec2abfbeb9e0f208b_9a53c548_250.webp" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤthe stamps dont alinge im gonna kms (i made alla these stamps btw🥹)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <img width="1752" height="1450" alt="image" src="5d752aae486f900c65ec71a7ce75898e.jpg" />
