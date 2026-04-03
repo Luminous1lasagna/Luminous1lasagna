@@ -11,7 +11,9 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img alt="image" src="tumblr_b905b07cff81ccd16e063f01555e550b_a116033e_1280.png" />
 
-uhuh im usually in ponytown to make friends i usually switch on and off tab waiting for people so my status is constantly going from the looking for chat to idlr gyulp... i also look at everybodies githubs near me because again i wanna learn about cool people 
+uhuh im usually in ponytown to make friends i usually switch on and off tab waiting for people so my status is constantly going from the looking for chat to idlr gyulp... i also look at everybodies githubs near me because again i wanna learn about cool people. 
+
+Don't let my catholic spain pfp scare you im not one of those homophobic transphobic racist christians infact im mixed, pan and trans!! soso dont let that put you off
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img alt="gif" src="IMG_8151.webp" />        <img alt="gif" src="IMG_4656.gif" /> <img   alt="gif" width="98" height="55" alt="image" src="https://github.com/user-attachments/assets/62e18156-260c-4bd9-a00c-55953f9db7fb" />
  <img alt="gif" src="IMG_8152.webp" />   <img alt="gif" src="IMG_4665.webp" /> ㅤ
