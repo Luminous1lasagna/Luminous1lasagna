@@ -5,10 +5,11 @@
   <sup><sub> `drawing credits to @alfredo_nburger98 on Pinterest*ೃ༄`</sub></sup>
  
  
-ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤI love frain!!!! ( •̯́ ₃ •̯̀) 
+ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤI love frain!!!! ( •̯́ ₃ •̯̀) <img width="50" height="50" alt="Tomate-removebg-preview" src="https://github.com/user-attachments/assets/ccbd6e4f-14ed-4108-a587-a4b27d2b84b8" /> <img src="https://file.garden/aAlTw7t0BgljBiyy/8ef2ab6f.gif">
 
 
-<img width="1000" height="200" alt="Screenshot 2026-08-16 at 5 10 03 AM" src="https://github.com/user-attachments/assets/deeea5e4-6b9b-47f3-80bb-a6872fd72589" />
+
+<img width="1000" height="200" alt="Screenshot 2026-08-16 at 5 10 03 AM" src="https://github.com/user-attachments/assets/deeea5e4-6b9b-47f3-80bb-a6872fd72589" /> 
 
 <img src="https://file.garden/aAlTw7t0BgljBiyy/tumblr_b59eb83e7de80a39e7c850083aa46e93_a3c40751_1280.webp">
 
